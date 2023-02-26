@@ -1,0 +1,1 @@
+# PaulBelongsAsALowTierSoftwareEngineerMakingTheSameSalary_NotCausingHarmToAnyone_NotInAcademia
